@@ -1,3 +1,1 @@
 # Collaboration
-
-Ban-kai
